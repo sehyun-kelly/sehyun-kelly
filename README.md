@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- Looking for opportunities for junior software engineer
+- Looking for opportunities for Junior Software Engineer (Vancouver area or Remote)
 - 📫 How to reach me: sehyun.kelly.park@gmail.com
 
 
